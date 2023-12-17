@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Yaseer Mawardi, [iyaseer.site](https://iyaseer.site)
+* Yaseer Mawardi, [LinkedIn](https://www.linkedin.com/yaseermawardi)
